@@ -1,1 +1,0 @@
-# fulyaka.github.io
